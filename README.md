@@ -2,10 +2,10 @@
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵                              
 -----
-𝘏𝘰𝘴𝘵𝘴: Graye + Belarus  / no pony inspo!
+𝘏𝘰𝘴𝘵𝘴: Graye ꣑୧ Belarus  / no pony inspo!
 
-(discord - (ask 2 add) :: soldiurboy) 
+(discord - (ask 2 add) :: soldiurboy)  𐙚     ︵︵
 
-—   we block freely 
+ㅤ◟ ͜  ꣓   —  #   we block freely 
 
- “ my milkshake brings all the boys! (๑¯◡¯๑)  “
+ ❀   𓎟𓎟 “ my milkshake brings all the boys! (๑¯◡¯๑)  “
