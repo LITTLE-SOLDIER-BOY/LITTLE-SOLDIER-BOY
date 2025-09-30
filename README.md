@@ -2,9 +2,9 @@
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵                              
 -----
-𝘏𝘰𝘴𝘵𝘴: Graye ꣑୧ Belarus  / no pony inspo!
+ ˙ ✚  HOSTS ﹕  Graye ꣑୧ Belarus  / no pony inspo!
 
-(discord - (ask 2 add) :: soldiurboy)  𐙚     ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: soldiurboy 𐙚     ︵︵
 
 ㅤ◟ ͜  ꣓   —  #   we block freely 
 
