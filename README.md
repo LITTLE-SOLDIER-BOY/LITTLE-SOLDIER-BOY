@@ -1,6 +1,9 @@
 ![1000003649](https://github.com/user-attachments/assets/a40c5a4f-f515-4467-b7ee-509489ea8758)
 
+_  _ ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦 ︵︵  __ 𝘏𝘰𝘴𝘵𝘴: 𝘎𝘳𝘢𝘺𝘦,𝘉𝘦𝘭𝘢𝘦𝘳𝘶𝘴 ⠀_ :  ᥒ᥆ іᥒs⍴᥆! 
+                   , ,  , ,    we block freely. 
 
+     .co / url    (  e )⠀⠀ೀ
 <!--
 **LITTLE-SOLDIER-BOY/LITTLE-SOLDIER-BOY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
