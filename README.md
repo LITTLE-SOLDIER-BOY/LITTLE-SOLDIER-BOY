@@ -2,10 +2,7 @@
 
  ✙ ｡ᴗ ᴗ )⠀ 𝐌𝐢𝐥𝐢𝐭𝐢𝐚𝐒𝐲𝐬𝐭𝐞𝐦   ︵︵ 
 __ 𝘏𝘰𝘴𝘵𝘴: Graye + Belarus    (no pony inspo!) 
-  •̀  DC (ask 2 add) :: soldiurboy
-
-
-                  , ,  , ,    we block freely. 
+  •̀  DC (ask 2 add) :: soldiurboy  —   we block freely 
 
      .co / url    (  e )⠀⠀ೀ
 <!--
