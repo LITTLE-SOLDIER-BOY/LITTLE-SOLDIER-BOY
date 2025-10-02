@@ -6,7 +6,7 @@
 -----
  ˙ ✚  HOSTS ﹕  Graye ꣑୧ Belarus  / no pony inspo!
 
-✧ . 𓋰 .  discord - (ask 2 add) :: soldiurboy 𐙚     ︵︵
+✧ . 𓋰 .  discord - (ask 2 add) :: sohldier 𐙚     ︵︵
 
 ㅤ◟ ͜  ꣓   —  #   we block freely 
 
