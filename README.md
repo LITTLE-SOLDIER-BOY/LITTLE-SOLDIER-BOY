@@ -10,7 +10,7 @@
 
 ㅤ◟ ͜  ꣓   —  #   we block freely 
 
- ❀   𓎟𓎟 “ my milkshake brings all the boys! (๑¯◡¯๑)  “
+ ❀   𓎟𓎟 “ Do not pray anymore; the sky is deaf. “
 
 
 
